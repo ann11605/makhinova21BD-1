@@ -2,4 +2,4 @@
 # [Вход и выход инф](https://disk.yandex.ru/i/SRCVYWIdChq9Lg)
 # [Предмет область](https://disk.yandex.ru/i/U1Y0fgyKEp46dQ)
 # [Контр пример](https://disk.yandex.ru/i/U1Y0fgyKEp46dQ)
-# [Схема прило](https://disk.yandex.ru/i/K8suxWdFL36gEw)
+# [Схема прилож](https://disk.yandex.ru/i/K8suxWdFL36gEw)
